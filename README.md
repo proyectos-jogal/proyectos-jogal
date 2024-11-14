@@ -9,7 +9,7 @@
 - 💞️ I’m looking to collaborate on open-source web apps or anything related to building tools for developers.
       Feel free to reach out if you have a cool idea or need help with a project! ⚡
   
-- 📫 You can reach me via email at proyectos.jogal@example.com
+- 📫 You can reach me via email at jogal1965jjgh@gmail.com,
       Or follow me on Instagram: @jose_galvis65. 😄
   
 - ✨ Special Repository for Amaizing Projects ✨
